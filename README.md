@@ -10,6 +10,12 @@ Interests
  - Tangled the series
  - Invader Zim
  - Persona 5
+ - Over the Garden Wall
+ - Steven Universe
+ - Amphibia
+ - OK K.O
+ - The Owl House
+ - Wander Over Yonder
  (all i remember for now TwT)
 
  Games
