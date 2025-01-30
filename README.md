@@ -16,6 +16,7 @@ Interests
  - OK K.O
  - The Owl House
  - Wander Over Yonder
+ - Jumpcut!
  (all i remember for now TwT)
 
  Games
