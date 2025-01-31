@@ -5,7 +5,6 @@ Interests
  - VAT7K
  - TPOT, BFB, BFDI
  - Inanimate Insanity
- - C2BC
  - Danny Phantom
  - Tangled the series
  - Invader Zim
