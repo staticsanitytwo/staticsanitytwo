@@ -8,6 +8,7 @@ Interests
  - Danny Phantom
  - Tangled the series
  - Invader Zim
+ - Smiling Friends
  - Persona 5
  - Over the Garden Wall
  - Steven Universe
@@ -16,6 +17,7 @@ Interests
  - The Owl House
  - Wander Over Yonder
  - Jumpcut!
+ - 
  (all i remember for now TwT)
 
  Games
